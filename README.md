@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **roblox**
 
-- 📫 How to reach me **alandg505@gmail.com**
+- 📫 How to reach me **cryhujnkop@gmail.com**
 
 - ⚡ Fun fact **IM FUNNY**
 
